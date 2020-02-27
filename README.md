@@ -1,1 +1,0 @@
-# kingsburg-high-school.github.io
